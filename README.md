@@ -52,6 +52,7 @@ Tớ tên là **Tan Dung Nguyen** hay còn có biệt danh là **tdunguwu**
 - ❄ Github : **[Proleakernotprocoder](https://github.com/tdunguwu)**
 
 - ❄ Website : **[Thông Tin Liên Hệ](https://tdunguwwu.glitch.me/)**
+- **etou**
 
 - -------------------------------------------------
 - **Thanks For Reading**  👑
